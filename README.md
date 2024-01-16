@@ -6,7 +6,7 @@
 - 😄 There is parking available for one vehicle at the top of the forest. Additional nearby parking is available upon request. You are welcome to enjoy the land and generally make yourselves at home. Any questions or special requests just let us know :)
 - ⚡ These unique and quirky treehouse style pods perch on their own private site offer sunset views across the rolling Welsh valleys and countryside. With an outdoor seating area for firepits, deck chairs and escaping to nature. Dogs are welcomed however must be on a lead at all times and owners to clean up after them.
 - Alternatively we offer a camping barn for 2 with the luxury of king sized bed, wood fire stove with warming overn, private court yard BBQ space with outside lounging faciities and private kitchen and shower room if you prefer.
-- Find us on Insta, @nantbachretreat for more photos and to follow our glamping story.<!---
+- Find us on Instagram nantbach.retreat_limited for more photos and to follow our glamping story.<!---
 NantbachRetreat/NantbachRetreat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
